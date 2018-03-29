@@ -1,4 +1,4 @@
 # ideas
 Exchanging ideas
 
-If you want to exchanging ideas, please be in touch.
+This space is reserved to exchanging ideas about possible new projects.
